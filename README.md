@@ -25,3 +25,7 @@ i'm usually on the safe server, likely at docks, but i can be found in other pla
 
 - pokemon! i'm sorta new to the fandom, but i've loved its worldbuilding and biology/creature designs since i was super young ^^
 </details>
+<details>
+<summary>my ponies/skins!</summary>
+this is a wip!! i'll show off the skins i'm usually using as well as a small description for each ^^
+</details>
