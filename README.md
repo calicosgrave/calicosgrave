@@ -14,7 +14,8 @@ i'm usually on the safe server, likely at docks, but i can be found in other pla
 
 -- i may appear shy or awkward, but for the most part i'm fully comfortable! just sorta quiet ^^
 -- -- --
-stuff i like!
+<details>
+<summary>media i like!</summary>
 
 - my little pony, primarily g4 but i like the older generations as well, just don't interact with the content very much!
 
@@ -23,3 +24,4 @@ stuff i like!
 - spongebob, especially the older seasons!! my favorite episode is culture shock/F.U.N. (s1ep10) :D
 
 - pokemon! i'm sorta new to the fandom, but i've loved its worldbuilding and biology/creature designs since i was super young ^^
+</details>
