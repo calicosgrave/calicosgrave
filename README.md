@@ -1,10 +1,12 @@
 ## ABOUT ME !
 
-nick(olas) / calicosgrave
+call me nick or nickolas!
 
 he/it -- 18 -- taken -- EST -- INFP
 
 audhd, among other things!! -- semi-speaking
+
+<sub>feel free to ask me questions about myself! i don't mind sharing :]</sub>
 -- -- --
 interaction of (most) kinds is perfectly okay! whispers are kinda iffy, but for a small question or two it doesn't bother me any ^^
 
