@@ -2,7 +2,7 @@
 
 nick(olas) / calicosgrave
 
-he/it -- 18 -- taken -- EST
+he/it -- 18 -- taken -- EST -- INFP
 
 audhd, among other things!! -- semi-speaking
 -- -- --
