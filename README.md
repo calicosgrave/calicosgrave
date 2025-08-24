@@ -6,6 +6,11 @@ he/it -- 18 -- taken -- EST -- INFP
 
 audhd, among other things!! -- semi-speaking
 
+<img width="40" height="362" alt="queer flag" src="https://github.com/user-attachments/assets/e3a744a9-785b-4def-aed9-5b775bc77e08" /> <img width="40" height="692" alt="genderqueer flag" src="https://github.com/user-attachments/assets/3d31b14b-2326-42ca-b76b-5b2965c07aa5" /> *or* <img width="40" height="255" alt="genderqueer guy flag" src="https://github.com/user-attachments/assets/82d87ce4-b0b5-4a3d-97e8-62b7061cb706" />
+
+
+
+
 <sub>feel free to ask me questions about myself! i don't mind sharing :]</sub>
 -- -- --
 interaction of (most) kinds is perfectly okay! whispers are kinda iffy, but for a small question or two it doesn't bother me any ^^
