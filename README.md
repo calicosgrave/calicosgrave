@@ -21,6 +21,7 @@ i'm usually on the safe server, likely at docks, but i can be found in other pla
 
 -- i may appear shy or awkward, but for the most part i'm fully comfortable! just sorta quiet ^^
 -- -- --
+[ponies you might see me as! (straw.page)](https://calicosgravept.straw.page/)
 <details>
 <summary>media i like!</summary>
 
@@ -31,8 +32,4 @@ i'm usually on the safe server, likely at docks, but i can be found in other pla
 - spongebob, especially the older seasons!! my favorite episode is culture shock/F.U.N. (s1ep10) :D
 
 - pokemon! i'm sorta new to the fandom, but i've loved its worldbuilding and biology/creature designs since i was super young ^^
-</details>
-<details>
-<summary>my ponies/skins!</summary>
-this is a wip!! i'll show off the skins i'm usually using as well as a small description for each ^^
 </details>
