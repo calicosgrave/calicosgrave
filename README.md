@@ -13,7 +13,7 @@ audhd, among other things!! -- semi-speaking
 
 <sub>feel free to ask me questions about myself! i don't mind sharing :]</sub>
 -- -- --
-interaction of (most) kinds is perfectly okay! whispers are kinda iffy, but for a small question or two it doesn't bother me any ^^
+interaction of (most) kinds is perfectly okay! whispers are iffy, i don't mind questions n stuff (as sometimes i'm off tab ^^) but i'm not very good at holding a conversation in whispers unless i have spoken to you before!
 
 i'm usually on the safe server, likely at docks, but i can be found in other places as well!
 
