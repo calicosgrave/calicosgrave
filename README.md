@@ -1,6 +1,8 @@
 ## ABOUT ME !
+⭐ ***STATUS:*** *working on resources for teacherspayteachers! likely offtab*
 
-call me nick or nickolas!
+
+call me <ins>nick</ins> or <ins>nickolas!</ins>
 
 he/it -- 18 -- taken -- EST -- INFP
 
