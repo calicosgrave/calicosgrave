@@ -33,5 +33,5 @@ i'm usually on the safe server, likely at docks, but i can be found in other pla
 
 - spongebob, especially the older seasons!! my favorite episode is culture shock/F.U.N. (s1ep10) :D
 
-- pokemon! i'm sorta new to the fandom, but i've loved its worldbuilding and biology/creature designs since i was super young ^^
+- pokemon! i've loved the worldbuilding and biology/creature designs since i was super young ^^
 </details>
