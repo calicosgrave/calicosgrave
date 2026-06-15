@@ -1,5 +1,5 @@
 ## ABOUT ME !
-⭐ ***STATUS:*** *working on resources for teacherspayteachers! likely offtab*
+⭐ ***STATUS:*** *eating & sewing*
 
 
 call me <ins>nick</ins> or <ins>nickolas!</ins>
