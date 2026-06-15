@@ -4,7 +4,7 @@
 
 call me <ins>nick</ins> or <ins>nickolas!</ins>
 
-he/it -- 18 -- taken -- EST -- INFP
+he/it -- 19 -- taken -- EST -- INFP
 
 audhd, among other things!! -- semi-speaking
 
