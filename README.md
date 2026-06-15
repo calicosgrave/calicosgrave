@@ -8,7 +8,7 @@ he/it -- 18 -- taken -- EST -- INFP
 
 audhd, among other things!! -- semi-speaking
 
-<img width="400" height="362" alt="queer flag" src="https://github.com/user-attachments/assets/e3a744a9-785b-4def-aed9-5b775bc77e08" /> <img width="400" height="692" alt="genderqueer flag" src="https://github.com/user-attachments/assets/3d31b14b-2326-42ca-b76b-5b2965c07aa5" /> *or* <img width="400" height="255" alt="genderqueer guy flag" src="https://github.com/user-attachments/assets/82d87ce4-b0b5-4a3d-97e8-62b7061cb706" />
+<img width="40" height="362" alt="queer flag" src="https://github.com/user-attachments/assets/e3a744a9-785b-4def-aed9-5b775bc77e08" /> <img width="40" height="69" alt="genderqueer flag" src="https://github.com/user-attachments/assets/3d31b14b-2326-42ca-b76b-5b2965c07aa5" /> *or* <img width="40" height="25" alt="genderqueer guy flag" src="https://github.com/user-attachments/assets/82d87ce4-b0b5-4a3d-97e8-62b7061cb706" />
 
 
 
