@@ -20,7 +20,6 @@ interaction of (most) kinds is perfectly okay! whispers are iffy, i don't mind q
 i'm usually on the safe server, likely at docks, but i can be found in other places as well!
 
 -- i suffer from (mostly) involuntary age regression, and occasionally play this to help regulate myself! this leads to me primarily using short sentences/phrases rather than full sentences, or only using "body" language (emotes, expressions, etc)!
-(i am usually not bothered by more adult-leaning conversation, just don't be a weirdo lmao)
 
 -- i may appear shy or awkward, but for the most part i'm fully comfortable! just sorta quiet ^^
 -- -- --
